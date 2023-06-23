@@ -21,6 +21,6 @@ I'm Chris Boatwright, aka cmbcodes, a passionate self-taught developer from the 
 * High Quality Work 🏆
 * Effective Collaboration 🤝
 
-## Reach me out!
+## Reach out to me!
 📫 How to reach me: cmbcodes@gmail.com
 
